@@ -1,1 +1,1 @@
-# Latihan-NGC
+# Latihan-NGC dan LC
